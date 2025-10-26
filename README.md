@@ -1,0 +1,1 @@
+# Heterogeneous-analysis-of-solar-energy-in-India
